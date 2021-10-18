@@ -1,4 +1,4 @@
-## Olá! Eu sou Akio Serizawa👨‍💻💻
+## Olá! Eu sou Thales Correa👨‍💻💻
 
 <div align="center">
   <a href="https://github.com/thaleshcorrea">
